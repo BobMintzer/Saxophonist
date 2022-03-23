@@ -1,1 +1,1 @@
-# [Saxophonist Bob Mintzer] (https://bobmintzer.com/)
+# [Saxophonist Bob Mintzer is a member of the Grammy award-winning Yellowjackets who also leads a Grammy-winning Big Band, travels with his own Quartet, and plays with numerous bands globally] (https://bobmintzer.com/)
